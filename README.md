@@ -8,3 +8,8 @@
  
 ***
 ![image](https://user-images.githubusercontent.com/94201226/182056740-1689ffef-d342-4c01-9676-ed9d117865f4.png)
+***  
+***  
+# Acesse o site pelo Qr Code: 
+***
+![image](https://user-images.githubusercontent.com/94201226/184551564-c423e6f8-fd33-4c94-b5e1-ee33cfb06640.png)
